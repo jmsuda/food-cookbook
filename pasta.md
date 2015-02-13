@@ -19,3 +19,5 @@ Meanwhile, bring a large pan of salted water to the boil. Add the pasta and cook
 
 2. Drain the pasta, return to the pan and stir in the sauce and basil leaves if you have any. Serve with a generous grinding of pepper.
 
+
+Recipe from Good Food magazine, September 2002
